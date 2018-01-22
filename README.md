@@ -1,0 +1,2 @@
+# locela
+Locela Token ICO
